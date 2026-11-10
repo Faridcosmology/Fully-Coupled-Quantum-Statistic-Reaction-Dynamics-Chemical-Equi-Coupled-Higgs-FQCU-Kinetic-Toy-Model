@@ -1,0 +1,1 @@
+# Fully-Coupled-Quantum-Statistic-Reaction-Dynamics-Chemical-Equi-Coupled-Higgs-FQCU-Kinetic-Toy-Model
